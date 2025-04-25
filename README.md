@@ -73,7 +73,7 @@ We welcome collaboration with healthcare institutions seeking innovative solutio
 ## 📫 Contact Me  
 📧 Email: jaindhaani0919@gmail.com
 💼 LinkedIn: www.linkedin.com/in/dhaani-jain-09b9482a0  
-💻 GitHub: https://github.com/Dhaani09
+💻 GitHub: https://github.com/kaanchiiii
 🌐 Portfolio: https://dhaani09.github.io/Portfolio/ 
 
 ---
